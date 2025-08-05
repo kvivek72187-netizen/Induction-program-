@@ -53,6 +53,7 @@ This was especially helpful for me as it cleared many of my doubts, particularly
 At the end of the program, our senior students introduced us to GitHub and guided us on how to document our experiences and learnings from the induction program.
 
 👁️ Conclusion
-Day 2 of the Induction Program was informative, inspiring, and full of learning experiences. It gave us valuable insights into scholarships, health, and
+Day 2 of the Induction Program was informative, inspiring, and full of learning experiences. It gave us valuable insights into scholarships, health. A lecture by Dr. Arsh Deep Singh on "Food: A pivitol role in student overall wellness " in auditorium . He talked about my health issues .My food is need to our body which  food is bad .He 5alked about wheat is harmful for our but 
 
- information
+
+
