@@ -52,8 +52,39 @@ This was especially helpful for me as it cleared many of my doubts, particularly
 👨‍💻 GitHub Introduction by Seniors
 At the end of the program, our senior students introduced us to GitHub and guided us on how to document our experiences and learnings from the induction program.
 
-👁️ Conclusion
-Day 2 of the Induction Program was informative, inspiring, and full of learning experiences. It gave us valuable insights into scholarships, health. A lecture by Dr. Arsh Deep Singh on "Food: A pivitol role in student overall wellness " in auditorium . He talked about my health issues .My food is need to our body which  food is bad .He 5alked about wheat is harmful for our but 
+Day 2: Science, Values & Vision
+
+Dr. Jaswinder Singh
+
+Enlightening session on the interconnection between science, spirituality, and humanity.
+
+Topics covered:
+
+Importance of meditation and Guru Nanak Dev Ji’s teachings.
+
+Scientific demonstrations & concepts:
+
+Waves
+
+Light and Sound
+
+Resonance Phenomenon
+
+Insights into Galileo and Einstein's experiments
+
+Ms. Priya Darshni (Universal Human Values)
+
+Conducted an interactive session with students.
+
+Discussed:
+
+Goal setting
+
+Right understanding of self and surroundings
+
+Building healthy relationships with family and friends
+
+Developing empathy, clarity, and balanced emotional intelligence
 
 
 
