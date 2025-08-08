@@ -75,13 +75,9 @@ Today's focus was on campus infrastructure and digital learning tools.
 GNDEC’s Library Resources 📚
 T&P Cell (Training & Placement) details for future internships and placements 💼
 The importance of discipline and punctuality in engineering life
-💻 A special demo on:
 
-LMS (Learning Management System) – How to check notes, assignments, and lecture schedules online
-College Portal, where attendance, internal marks, and notices are updated
-The session helped us understand how to utilize digital tools for academic success. 🖥️✨
 
-📅 Day 4 – 3rd August 2025 (Sunday)
+📅 Day 4 – 3rd August 2025 (Monday)
 It was a relaxed day yet highly inspiring. We had guest lectures by industry and academic experts.
 
 🎤 Key Sessions:
